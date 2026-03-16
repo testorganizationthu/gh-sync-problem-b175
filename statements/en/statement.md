@@ -1,1 +1,1 @@
-Solve it.
+Updated statement from platform.
